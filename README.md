@@ -7,7 +7,7 @@
 
 - 🌱Atualmente estou estudando **JavaScript,React,PHP,HTML e CSS.**
 
-- 👨‍💻 Meus aprendisados estão disponiveis [https://github.com/flayregina](https://github.com/flayregina)
+- 👨‍💻 Meus aprendizados estão disponiveis [https://github.com/flayregina](https://github.com/flayregina)
 
 - 📫 Contato: **flaviafreire23@gmail.com**
 
