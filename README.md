@@ -11,7 +11,7 @@
 
 - 📫 Contato: **flaviafreire23@gmail.com**
 
-- 📄 Sobre mim: [https://www.linkedin.com/in/fl%C3%A1via-regina-cunha-freire-01b3a423b/](https://www.linkedin.com/in/fl%C3%A1via-regina-cunha-freire-01b3a423b/)
+- 📄 Sobre mim: www.linkedin.com/in/flayregina
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
